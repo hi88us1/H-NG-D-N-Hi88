@@ -1,1 +1,1 @@
-# H-NG-D-N-Hi88
+HƯỚNG DẪN Hi88 - Hi88 là sảnh chơi cá cược đã và đang khẳng tên tuổi của mình trên thị trường cá cược. Chuyên mục hướng dẫn Hi88 sẽ cùng các bạn tìm hiểu các điểm cộng tại sảnh chơi làm cho bet thủ cực ưa thích khi tham gia đặt cược tại sảnh chơi. - https://hi88c.us/huong-dan/
